@@ -15,5 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 Some favorite bands:
--Pearl Jam
--Mother Love Bone
+- Pearl Jam
+- Mother Love Bone
