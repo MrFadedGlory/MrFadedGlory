@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-I’m currently learning how to use a Mac
+I’m currently learning how to use a Mac, Google Workspace, and Slack. So, you know, just a few little changes from the mothership
 
 Some favorite bands:
 - Pearl Jam
