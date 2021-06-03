@@ -16,6 +16,4 @@ Here are some ideas to get you started:
 -->
 I’m currently learning how to use a Mac, Google Workspace, and Slack. So, you know, just a few little changes from the mothership
 
-Some favorite bands:
-- Pearl Jam
-- Mother Love Bone
+I have a little bit of a CD obsession, but am contemplating a switch (back) to vinyl
